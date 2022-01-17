@@ -15,5 +15,5 @@
 👯 i'm interested in product management like ai service planning.
 
 
-📫 How to reach me: yjyjyjcho@naver.com
+📫 How to reach me: Safezone1@aihub.kr
 
